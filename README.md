@@ -1,1 +1,1 @@
-This is startup in year 2019 in which I was part of
+This is startup in year 2019. I have listed food items on this app.
